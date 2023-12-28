@@ -1,0 +1,2 @@
+# -Volunteer-ISS-International-workshop-in-Global-Institute-of-Statistical-GISS-
+Passionate and well-versed in mathematical statistics, I'm eager to volunteer at the ISS International workshop hosted by GISS. Armed with expertise in advanced statistical methods, I aim to contribute substantively to discussions, aiding the intersection of mathematical statistics and international space exploration. 
